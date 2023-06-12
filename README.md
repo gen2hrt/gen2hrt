@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @gen2hrt
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on any project
+- 📫 reach me icq @boldness
